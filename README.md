@@ -5,7 +5,7 @@
 
 ## oggi ho fatto poca cacca
 
-**bold text**
+mi sento brutto  **anzi na merda**
 
 ### e un paio di volte pipì
 
