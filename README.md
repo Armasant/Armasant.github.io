@@ -11,5 +11,6 @@
 
 - [x] Write the press release
 
+~~The world is flat.~~
 
 That is so funny! :joy:
